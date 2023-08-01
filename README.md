@@ -3,7 +3,7 @@
 
 
 I have Bachelors degree in Electronics and Communication Engineering. Dedicated and determined aspiring Full-stack developer with a 
-specialization in KodNest Technologies Pvt.Lmt. Seeking challenging opportunities to make the best use of my abilities and knowledge
+specialization in KodNest Technologies Pvt.Ltd. Seeking challenging opportunities to make the best use of my abilities and knowledge
 to develop both my professional and interpersonal skills, along with fulfilling the organization's growth and goals.
 
 
